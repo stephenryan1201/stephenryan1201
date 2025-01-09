@@ -13,3 +13,4 @@ I was out of work for 4-6 months. It was really rough. I had to move into my sis
 
 You can usually find me walking my dog around 7am and 3pm. I love meeting new people!
 If you see me around, come say hi!
+![image](https://github.com/user-attachments/assets/e729a11b-273c-4c2d-8f25-16f44711c3ff)
