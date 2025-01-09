@@ -1,7 +1,5 @@
 # Stephen Gerard Ryan
 
-![image](https://github.com/user-attachments/assets/85f4bc1f-e473-4252-b7d4-8cf5e3b2d683)
-
 ## About Me
 I live in Queens, NY, and I really like to harass and threaten women on the internet. Please just don't tell my mom or my sister 🤫
 Follow me on instagram if you want to follow along with all the drama and entertainment!
